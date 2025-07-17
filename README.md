@@ -25,7 +25,7 @@ Outside of work, I’m passionate about **game development and digital art**. I 
 ---
 
 ## 📫 Let’s Connect
-- 💼 [LinkedIn](https://www.linkedin.com/in/yourprofile)
+- 💼 [LinkedIn](https://www.linkedin.com/in/douglasjordao)
 - ✉️ Email: douglasjordao@gmail.com
 
 ---
